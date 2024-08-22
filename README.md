@@ -7,3 +7,4 @@ Silahkan gunakan format berikut.<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandi, [oo.or.id](https://oo.or.id).
+* Reza Firmansyah, [LinkedIn](https://www.linkedin.com/reza-fajari-firmansyah/).
